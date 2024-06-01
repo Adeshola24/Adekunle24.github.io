@@ -6,7 +6,7 @@ please go through this website and give a comment
 
 what i want from people are:
 | more views | |more comments | | likes |
-| --- | | --- | | --- |
+| --------- | | ------------ | | ----- |
 | the more the merrier | | good ones | | a lot |
 ** thank you ** very much for:
 - your time
